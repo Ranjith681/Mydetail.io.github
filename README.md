@@ -1,0 +1,1 @@
+# Mydetail.io.github
